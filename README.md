@@ -1,4 +1,4 @@
-### 🌷𝐒𝐓𝐑𝐀𝐍𝐆𝐄𝐑🌷
+### 🌷𝗦𝗔𝗖𝗛𝗜𝗡 𝗦𝗔𝗡𝗔𝗧𝗔𝗡𝗜 𝗠𝗨𝗦𝗜𝗖🌷
 
 <!--
 **itzshukla/itzshukla** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
